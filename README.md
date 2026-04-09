@@ -70,7 +70,7 @@ Skildom is built to **force action through design**.
 
 ## 📫 Reach Me
 
-* Email: [kalidasanpottiedamana@gmail.com](mailto:kalidasanpottiedamana@gmail.com)
+* Email: [kalidaspem@gmail.com](mailto:kalidaspem@gmail.com)
 
 ---
 
